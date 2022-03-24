@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vikasca
 - 👀 I’m interested in reading novels, playing cricket.
-- 🌱 I’m currently learning 
+<!--- - 🌱 I’m currently learning --->
 - 💞️ I’m looking to collaborate on new learing.
 - 🎬 YouTuber
 - 📫 How to reach me Linkedin.com/in/vikas62081
