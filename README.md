@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @vikasca
 - 👀 I’m interested in reading novels, playing cricket.
 - 💞️ I’m looking to collaborate on new learing.
-- 🎬 YouTuber
+- 🎬 YouTuber  👉 https://www.youtube.com/c/codenemy
 - 📫 How to reach me 👉 https://www.linkedin.com/in/vikas62081
 
 <!---
